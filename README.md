@@ -1,6 +1,6 @@
-## ONWIN 2025 Güncel 👋
+## ONWIN 2025 Güncel 👋  
 
-## 🎰 ONWIN Güncel Adresi!
+#### 🎰 ONWIN Güncel Adresi!  
 
 <div align="center">
 
