@@ -1,6 +1,5 @@
-## <p align="center">ONWIN 2025 Güncel 👋.</p>
-
-#### 🎰 ONWIN Güncel Adresi!  
+## <p align="center">ONWIN 2025 Güncel ⭐ </p>
+## <p align="center">ONWIN Güncel Adresi! 🎰 </p>
 
 <div align="center">
 
