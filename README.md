@@ -1,4 +1,4 @@
-## ONWIN 2025 Güncel 👋  
+## <p align="center">ONWIN 2025 Güncel 👋.</p>
 
 #### 🎰 ONWIN Güncel Adresi!  
 
